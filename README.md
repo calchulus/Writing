@@ -10,3 +10,6 @@ All of Calvin's Writing Outlets
 [The Night Obama was a Stuttering Speck of Light] (https://medium.com/@calc_55314/the-night-obama-was-a-stuttering-speck-of-light-304e5c1b76b3#.6qtg0qgak)
 
 [Keep It Real Fantasy Sports Blog] (http://keepitrealfantasysports.sportsblog.com/)
+
+
+[Intercollegiate Finance Journal Online Issues Repository] (https://issuu.com/search?q=ifj)
