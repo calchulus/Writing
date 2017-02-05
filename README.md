@@ -11,5 +11,12 @@ All of Calvin's Writing Outlets
 
 [Keep It Real Fantasy Sports Blog] (http://keepitrealfantasysports.sportsblog.com/)
 
+[Intercollegiate Finance Journal Writer Repository] (http://www.the-ifj.com/author/calvinc/)
+
+[The Value of Speaking Another Tongue] (http://www.the-ifj.com/2016/05/01/the-value-of-speaking-another-tongue-how-much-is-learning-a-language-worth/)
+
+[Savings For Rainy Days: Making a Splash in the Millennial Market] (http://www.the-ifj.com/2016/05/01/savings-for-rainy-days-making-a-splash-in-the-millennial-market/)
+
 
 [Intercollegiate Finance Journal Online Issues Repository] (https://issuu.com/search?q=ifj)
+
