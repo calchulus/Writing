@@ -20,5 +20,5 @@ All of Calvin's Writing Outlets
 [Savings For Rainy Days: Making a Splash in the Millennial Market] (http://www.the-ifj.com/2016/05/01/savings-for-rainy-days-making-a-splash-in-the-millennial-market/)
 
 
-[Intercollegiate Finance Journal Online Issues Repository] (https://issuu.com/search?q=ifj)
+[Intercollegiate Finance Journal Online Issues Repository] (https://issuu.com/alexdrechsler)
 
