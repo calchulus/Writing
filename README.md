@@ -22,3 +22,7 @@ All of Calvin's Writing Outlets
 
 [Intercollegiate Finance Journal Online Issues Repository] (https://issuu.com/alexdrechsler)
 
+# Poetry
+
+To be added
+
