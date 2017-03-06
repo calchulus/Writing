@@ -2,6 +2,8 @@
 All of Calvin's Writing Outlets
 
 
+[Stop Endorsing Me for Microsoft Word] (https://medium.com/@calc_55314/stop-endorsing-me-for-microsoft-word-5caf7cd462fb#.zgkeyucbe)
+
 [Why Doesn't Uber Integrate the UberEats App?] (https://medium.com/@calc_55314/why-doesnt-uber-integrate-the-ubereats-app-727eb5efc7d6#.gbtk9sr9m)
 
 
